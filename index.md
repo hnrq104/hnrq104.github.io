@@ -210,7 +210,6 @@ Alguns exemplos de atividades complementares são:
 
 [Aqui](https://dcc.ufrj.br/ensino/graduacao/normas-de-atividades-complementares-2) você pode achar todas as atividades complementares
 
-## Coordenação
 
 ## LOCAIS
 
